@@ -1,0 +1,1 @@
+# infortpakatsuki88.github.io
